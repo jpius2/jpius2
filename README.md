@@ -8,3 +8,5 @@
 📧 Contact me at jpius2@uwo.ca
 
 I'm always looking to learn something new, and am open to meeting like-minded individuals! Feel free to reach out and connect with me :) 
+
+--> 
